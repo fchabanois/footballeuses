@@ -121,6 +121,14 @@ J'avais laissé une ligne vide à son sujet sur le listing.
 - "Olala ma fille va être trop contente"
 - (son amie) "Tu vois, je t'avais dit de réessayer !" 
 
+"J'ai 40 ans, ça ira ?"
+
+"C'est un souci si je n'en ai jamais fait ? enfin juste en famille ?"
+
+Deux copines trop contentes de se lancer ensemble.
+
+Un frère qui encourage sa soeur qui hésite : "vas y inscris toi tu adores ça" (ils avaient 1 an de différence). Environ 6-7 ans.
+
 
 
 ### Réflexions
