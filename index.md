@@ -127,7 +127,7 @@ J'avais laissé une ligne vide à son sujet sur le listing.
 
 Deux copines trop contentes de se lancer ensemble.
 
-Un frère qui encourage sa soeur qui hésite : "vas y inscris toi tu adores ça" (ils avaient 1 an de différence). Environ 6-7 ans.
+Un frère encourage sa soeur qui hésite : "vas-y inscris toi tu adores ça" (ils avaient 1 an de différence). Environ 6-7 ans.
 
 
 
@@ -144,8 +144,10 @@ Un frère qui encourage sa soeur qui hésite : "vas y inscris toi tu adores ça"
 - Toujours défendre son espace. Je m'absente une heure trente, une joueuse prend le relais une heure. Le temps de revenir le stand féminin avait "disparu". Entouré d'hommes. Casque de motos et cartons de pizzas sur la table, par dessus les affiches (qu'on ne voit plus du coup); grosse tache d'olive et d'huile sur le listing. Franchement ça ne donnait plus envie.
 - L'autre entraineur : "tu as raison, nous aussi on doit se senbiliser à ça, pour accueillir plus de filles; Je ne savais même pas que les filles jouaient au foot avant, je croyais que c'était tout nouveau. On devrait le savoir !" 
 - "En mixte ça ne l'intéressait pas, elle a déjà fait et ça s'est mal passé". Je lui ai proposé d'aller avec les séniores comme elle avait 14 ans.
-- Beaucoup d'adultes demandent la moyenne d'âge actuelle.
+- Deux adultes demandent la moyenne d'âge actuelle.
 - Je vais peut être assister aux premières séances pour briefer les coachs.... 
+- Un côté "rêve d'enfant" de la part des adultes qui souhaitent rejoindre le club.
+- j'ai plus le temps de discuter réellement avec les personnes avec un stand à part
 
 
 ### Impact constaté
