@@ -48,7 +48,7 @@ Maison des associations
 
 ### Impact constaté
 
-"Touches"
+17 "Touches"
 
 - 2 fille de 12 ans
 - 1 fille de 14 ans
@@ -155,7 +155,7 @@ Un frère encourage sa soeur qui hésite : "vas-y inscris toi tu adores ça" (il
 
 ### Impact constaté
 
-#### "Touches"
+22 "Touches"
 
 - 6 ans : 4 (mercredi 16h)
 - 7 ans : 1
