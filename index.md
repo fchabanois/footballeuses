@@ -41,6 +41,10 @@ Maison des associations
 - Un père que je croise de temps en temps : "je trouve ça top ! j'aurais eu une fille je l'y aurais aussi mise."
 
 
+### Réflexions
+
+- Plusieurs jeunes filles, voire très jeunes filles sont intéressées. Grosse insistance sur le baby foot. Mais rapidement dissuadée par un membre du club "il n'y a que des garçons, ça va être difficile... es-tu vraiment vraiment sûre ?" / "pour les filles c'est différent, on ne vous donne pas de fiche d'inscription maintenant. Vous venez voir plusieurs fois d'abord".
+
 
 ### Impact constaté
 
@@ -63,10 +67,6 @@ Joueuses :
 Au final, en cours d'année, beaucoup de nouvelles joueuses par bouche à oreille via les déjà adhérentes.
 
 
-### Réflexions
-
-- Plusieurs jeunes filles, voire très jeunes filles sont intéressées. Grosse insistance sur le baby foot. Mais rapidement dissuadée par un membre du club "il n'y a que des garçons, ça va être difficile... es-tu vraiment vraiment sûre ?" / "pour les filles c'est différent, on ne vous donne pas de fiche d'inscription maintenant. Vous venez voir plusieurs fois d'abord".
-
 
 
 
@@ -86,26 +86,75 @@ Au final, en cours d'année, beaucoup de nouvelles joueuses par bouche à oreill
 - Stand exclusif foot féminin
 - Affiche sur poteau, affiche sur le mur derrière, 2 affiches sur les tables
 - Affiches A5 miniatures à emporter.
-- J'ai l'idée seulement à partir de la 4e personne de copier sur une feuille les infos demandées pour les garçons pour que les personnes intéressées laissent leur coordonnées. Infos demandées : âge, tel, mail.
+- J'ai l'idée seulement à partir de la 4e personne de copycater l'autre stand. J'arrache une feuille de mon cahier et copie sur une feuille les infos demandées pour les garçons pour que les personnes intéressées laissent leur coordonnées. Infos demandées : âge, tel, mail.
 - 2h après je pique un paquet de formulaire d'inscription pour les jeunes (mon affiche ne parlant que des séniors)
 - Photos des horaires
 - Espionnage table voisine (je découvre qu'il y a un plateau les samedi : jeux + petits matchs; que les tout petits n'ont qu'une séance; qu'on dissuade très fortement une maman d'inscrire sa fille).
+- Rediriger les tranches d'âges similaires vers le même créneau pour augmenter le ratio de filles (9-10 ans, 6-7 ans)
 
 
 
 ### Anecdotes
 
-- L'autre entraineur : "tu as raison, nous aussi on doit se senbiliser à ça, pour accueillir plus de filles; Je ne savais même pas que les filles jouaient au foot avant, je croyais que c'était tout nouveau. On devrait le savoir !" 
+- Ce sera en mixte du coup. Ca ira pour votre enfant (6 ans) ?
+- Pourquoi ça n'irait pas ?
+- Heu apparemment certains peuvent être mal à l'aise. 
+- (rires) naaan, ma fille n'a peur de personne. 
+
+
+Un entraîneur arrive et voit la liste de demandes. Hey mais y a du monde ! On pourrait faire une équipe féminine pour les jeunes aussi 
+
+Discussion avec un autre entraîneur, qui a demandé a passé 3 mois avec sa fille nouvellement née, covid oblige. A repris le boulot 1 mois. Puis elle lui manquait trop : a demandé à passer à 70% au taff pr passer plus de temps avec elle. 
+
+J'entends mon "collègue" de loin :
+- vaut mieux pas pr elle, ça va être trop difficile.
+- zut... pourtant elle aime tellement le foot.... tant pis merci (la dame s'en va) 
+J'apprends qu'une fille de 10 ans voulait rejoindre le club de foot. Elle en a été dissuadé parce que c'est mixte. Je venais d'aiguiller deux autres d'exactement du même âge à la séance mixte. 
+Il me dit que les garçons se moquaient d' elle.
+- Mais c eux qu'il faut recadrer !
+- ça se passait bien au club, c'est au collège qu'ils l'embêtaient.
+Rien ne changera si on les dissuade de venir, elles seront toujours minoritaires ! Y aurait rien à moquer si y en avait plus et que c "normal"
+Je cherche la dame du regard mais ne la retrouve plus. Crap.
+Une heure plus tard, la revoilà avec une amie qui lui dit en me montrant "vas y vas la voir je te dis"
+J'avais laissé une ligne vide à son sujet sur le listing. 
+- "Renseignez vos coordonnées là où il y a un 10 entre parenthèses", qu'elle se réjouit de remplir
+- "Olala ma fille va être trop contente"
+- (son amie) "Tu vois, je t'avais dit de réessayer !" 
+
 
 
 ### Réflexions
 
+- Beaucoup plus de personnes véritablement intéressées, plus que des remarques d'étonnements.
 - Ne pas avoir le même cadre pour les filles rend l'inscription moins sérieuse ? c'est comme si on n'y croyait pas ? 
 - La représentativité est importante
-- L'interlocuteur change
+- La personne qui t'accueille change tout.
 - "Ce n'est qu'à partir de 16 ans ?" (cf mon affiche). Car tarif différent.
-- Une autre bénévole vient me voir, alors qu'il y a un homme plus proche, pour me demander de la remplacer pendant qu'elle inscrit son fils à un autre stand. Je réponds que je m'occupe de la section féminine, par contre que mon voisin peut le faire. Elle s'en va. Je culpabilise vaguement et retourne voir ce qui se passe en feignant de demander ce qu'elle doit faire au juste. Elle dit qu'elle finit (pas trop suivi). 5 min plus tard, mon cher voisin la remplace.
-- J'ai moins de scrupules à couper une conversation en cours que l'année d'avant (pour avoir les horaires....). Nécessaire 4-5 fois. 
+- Garder une file dédiée : une autre bénévole vient me voir, alors qu'il y a un homme plus proche, pour me demander de la remplacer pendant qu'elle inscrit son fils à un autre stand. Je réponds que je m'occupe de la section féminine, par contre que mon voisin peut le faire. Elle s'en va. Je culpabilise vaguement et retourne voir ce qui se passe en feignant de demander ce qu'elle doit faire au juste. Elle dit qu'elle finit (pas trop suivi). 5 min plus tard, mon cher voisin la remplace. 
+- Moins de scrupules à couper une conversation en cours que l'année d'avant (pour avoir les horaires....). Nécessaire 4-5 fois. 
+- Un entraineur voit le nombre de filles "mais c'est super, on a de quoi monter une autre équipe de junior féminine" ! Toujours tout noter et rendre visible. Les emails ont donné de la crédibilité et du poids aux volumes de personnes intéressées. Plus tard, un autre membre du club m'en reparle sérieusement et dit que la fédération sera forcément ok avec ça, car ils veulent promouvoir l'aspect féminin. Sans cette feuille, ce ne serait pas un sujet. D'ailleurs, ils ont continué à la renseigner après mon départ. Il fallait juste la lancer avec quelques noms.
+- Toujours défendre son espace. Je m'absente une heure trente, une joueuse prend le relais une heure. Le temps de revenir le stand féminin avait "disparu". Entouré d'hommes. Casque de motos et cartons de pizzas sur la table, par dessus les affiches (qu'on ne voit plus du coup); grosse tache d'olive et d'huile sur le listing. Franchement ça ne donnait plus envie.
+- L'autre entraineur : "tu as raison, nous aussi on doit se senbiliser à ça, pour accueillir plus de filles; Je ne savais même pas que les filles jouaient au foot avant, je croyais que c'était tout nouveau. On devrait le savoir !" 
+- "En mixte ça ne l'intéressait pas, elle a déjà fait et ça s'est mal passé". Je lui ai proposé d'aller avec les séniores comme elle avait 14 ans.
+- Beaucoup d'adultes demandent la moyenne d'âge actuelle.
+- Je vais peut être assister aux premières séances pour briefer les coachs.... 
+
+
+### Impact constaté
+
+"Touches"
+
+6 ans : 4
+7 ans : 1
+9 ans : 3
+10 ans : 3
+11 ans : 1
+12 ans : 3
+13 ans : 1
+14 ans : 1 (basculée en sénior)
+> 20 ans : 5 
+
+
 
 
 
