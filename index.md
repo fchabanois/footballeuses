@@ -6,10 +6,12 @@ J'ai suivi une année de foot assez irrégulièrement, mais suffisamment pour y 
 
 ### Contexte
 
-- Juste après la coupe du monde de football féminin. 
-- Je créé une boite mail "footfeminin" et demande au contact du site de la ville à avoir un stand au forum des assos. J'ai une réponLe président de l'asso de sport de la ville me répond que la section Football féminin fait partie de la section Football, et qu'ils y seront. Je suis la bienvenue.
-- Une affiche a été réalisée il y a quelques années mais impossible de remettre la main sur les sources. Elle affichait des silhouettes de joueuses. Lors d'un pot, nous nous mettons d'accord entre joueuses sur les infos à faire apparaitre (de 6 à 99 ans, le lieu, le tarif, le contact, etc.) Je fais une nouvelle affiche car je voulais des visages. J'utilise une poupée de la maison, ce qui ne fait pas l'unanimité chez les joueuses. J'assume mon ton "décalé" et me dit qu'on pourra toucher modifier l'année suivante.
-- La ville accepte d'imprimer l'affiche en plusieurs exemplaires, ainsi que des tracts.
+- Une affiche a été réalisée il y a quelques années mais impossible de remettre la main sur les sources. Elle affichait des silhouettes de joueuses. Lors d'un pot, nous nous mettons d'accord entre joueuses sur les infos à faire apparaitre (de 16 à 99 ans, des photos de nous de dos, le lieu, le tarif, le contact, etc.) Les vacances passent.... plus trop le temps. Je fais une nouvelle affiche avec une poupée de la maison au lieu des photos de nous. Cela ne fait pas l'unanimité chez les joueuses (trop stéréotypée et une poupée alors qu'on n'est pas toutes jeunes...:D ) . Je leur file les accès pour qui est motivée pour retoucher. Sinon l'année suivante.
+- Juste après la coupe du monde de football féminin, où la France va jusqu'au quart de finale.
+- Je créé une boite mail "footfeminin" et demande au contact du site de la ville à avoir un stand au forum des assos. Une autre demande part via texto à notre entraineur, qui va voir ce qu'il peut faire. Il me dit ok avec la date du forum.
+Je reçois un mail du président de l'asso (visiblement la ville lui a transféré) pour me dire que la section Football féminin fait partie de la section Football, et qu'ils y seront. Je suis la bienvenue et propose aux autres joueuses d'y aller aussi.
+- La ville accepte d'imprimer l'affiche en plusieurs exemplaires, ainsi que des tracts, moyennant l'ajout du logo de la ville.
+- un club de foot féminin s'ouvre dans la ville voisine
 - Le stand foot est dans un coin de la cour.
 
 
@@ -17,16 +19,18 @@ J'ai suivi une année de foot assez irrégulièrement, mais suffisamment pour y 
 
 Forum des associations
 
-- Port du maillot
+- Port du maillot > pub ambulante
 - Sur tous les plans du forum, j'ajoute "Football féminin" au feutre à "Football".
 - Je placarde sur la table du stand et les murs autour des affiches
 - Je refuse de dépanner la longue fil des personnes qui font la queue pour le foot garçon. Quand certains me demandent pourquoi je ne prends personne, je montre l'affiche "Football féminin".
-- L'après-midi une autre joueuse vient prendre la relève. Elle est beaucoup plus sociable que moi et alpague des passantes.
+- L'après-midi une autre joueuse vient prendre la relève, puis 2 autres. Quelques alpaguages spontanées.
 - Je mets un trait + âge pour chaque personne intéressée. Il y a une seule page des horaires. Quand un passant.e demande des infos, je dois demander les infos à quelqu'un d'autre.... Je finis par prendre une photo. Je leur donne à chaque fois les horaires et leur propose de tester.
 - Mon voisin intervient de temps en temps "ah c'est pour une fille ? dans ce cas, pas de formulaire d'inscription. Elles viennent essayer 2-3 fois, et si elles ont toujours envie, elles pourront s'inscrire".
 - Des gens commentent l'affiche. Le coach me dit "c'est bien, elle fait réagir votre affiche".
 
+Maison des associations
 
+- Dépôt de fiches 
 
 ### Anecdotes
 
@@ -34,16 +38,34 @@ Forum des associations
 - Un jeune garçon est interloqué et choqué qu'une fille puisse jouer au foot. Ses parents lui disent "bah si tu vois c'est possible". 
 - Beaucoup de "je ne savais pas qu'il y avait une section féminine !". Elle existe depuis au moins 4 ans.
 - Et le découvrent en faisant la queue pour leur.s garçon.s
-- Un père que je croise de temps en temps : "je trouve ça top ! j'aurais eu une fille je l'y aurais aussi mise.".
+- Un père que je croise de temps en temps : "je trouve ça top ! j'aurais eu une fille je l'y aurais aussi mise."
+
 
 
 ### Impact constaté
 
-Faible
+"Touches"
+
+- 2 fille de 12 ans
+- 1 fille de 14 ans
+- 1 fille de 6 ans
+- 1 fille de 9 ans 
+- 2 filles de 10 ans
+- 4 filles de 4 ans
+- 6 en sénior
+- Quelques flyers de parti. 
+
+Joueuses :
+
+- +2 en sénior. En cours d'année, une rejoindra un autre club (D1).
+- junior : ?
+
+Au final, en cours d'année, beaucoup de nouvelles joueuses par bouche à oreille via les déjà adhérentes.
 
 
 ### Réflexions
 
+- Plusieurs jeunes filles, voire très jeunes filles sont intéressées. Grosse insistance sur le baby foot. Mais rapidement dissuadée par un membre du club "il n'y a que des garçons, ça va être difficile... es-tu vraiment vraiment sûre ?" / "pour les filles c'est différent, on ne vous donne pas de fiche d'inscription maintenant. Vous venez voir plusieurs fois d'abord".
 
 
 
