@@ -77,8 +77,9 @@ Au final, en cours d'année, beaucoup de nouvelles joueuses par bouche à oreill
 - Pendant / Post COVID. Le forum est éclaté et s'étalent dans la rue. Nous sommes presqu'au bout, aligné avec tous les autres sports. La gens peuvent facilement passer et voir.
 - 2 semaines avant, j'envoie un mail au président pour protester contre le fait que nous payons le même tarif que les hommes pour moitié moins de séances. Réponse : ils ont en conscience et ont prévu d'en rajouter une.
 - L'OL a gagné pour la 7e fois (5e fois consécutive) la ligue des champions féminines. Le PSG féminin est arrivé en demi finale. La finale a été diffusée sur W9. C'était un très bon match.
-- Au moment de prendre mon feutre, je consulte l'affiche du forum sur le site de la ville : il est mentionné "Football / Football féminin" !
-- Sur le chemin du forum, je croise le président de l'asso qui me dit qu'il y a cette fois une table à part, un stand dédié "foot féminin" ! 
+- Suppression de la catégorie 14-18 ans chez les hommes (trop de pb annexes)
+- Au moment de prendre mon feutre, je consulte l'affiche du forum sur le site de la ville : il est mentionné "Football / Football féminin" 
+- Sur le chemin du forum, je croise le président de l'asso qui me dit qu'il y a cette fois une table à part, un stand dédié "foot féminin" 
 
 
 ### Opérations
@@ -148,21 +149,24 @@ Un frère encourage sa soeur qui hésite : "vas-y inscris toi tu adores ça" (il
 - Je vais peut être assister aux premières séances pour briefer les coachs.... 
 - Un côté "rêve d'enfant" de la part des adultes qui souhaitent rejoindre le club.
 - j'ai plus le temps de discuter réellement avec les personnes avec un stand à part
+- pas eu le temps d'ouvrir mon magazine une seule fois
+
 
 
 ### Impact constaté
 
 #### "Touches"
 
-6 ans : 4
-7 ans : 1
-9 ans : 3
-10 ans : 3
-11 ans : 1
-12 ans : 3
-13 ans : 1
-14 ans : 1 (basculée en sénior)
-Plus de 20 ans : 5 
+- 6 ans : 4 (mercredi 16h)
+- 7 ans : 1
+- 9 ans : 3
+- 10 ans : 3 (lundi 18h-19h30)
+- 11 ans : 1
+- 12 ans : 3
+- 13 ans : 1
+- 14 ans : 1 (basculée en sénior)
+- Plus de 20 ans : 5 
+
 
 
 
