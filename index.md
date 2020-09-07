@@ -169,6 +169,150 @@ Un frère encourage sa soeur qui hésite : "vas-y inscris toi tu adores ça" (il
 
 
 
+# Intégration footballeuses
+
+## Cours #1 des 9-10 ans
+
+18h01. 0 fille et une quinzaine de garçons. 
+
+5 minutes après, 2 filles arrivent et viennent me voir directement.
+
+1 autre nous rejoint, accompagnée de sa maman. Le coach leur demande leur année et dit à une que son cours est une heure et demi plus tard. Je ne suis pas d'accord :
+
+- c'est l'heure qui a été indiquée au forum. 
+- ah ? car pour les filles, nous les mettons avec des garçons qui ont un an de moins (je n'avais jamais entendu parler de ça....)
+- ok.... est-ce qu'elles peuvent être ensemble au moins à cette séance ? 
+- oui pas de souci pour aujourd'hui.
+
+Elles restent groupées à trois et guettent l'arrivée d'autres filles "y a que nous en filles ?". 
+
+L'autre coache fait partir les garçons en échauffement pendant que les filles discutaient. Je leur dis de faire comme eux, autrement elles vont se blesser... Elles n'osent pas trop se rapprocher et le coach ne va pas les chercher non plus, c'est pas gagné.
+
+Ils terminent leur tour de terrain :
+
+- Venez par ici les gars !
+- Et les filles....
+- Ah oui, va falloir que je m'habitue !
+
+Après 2 tours d'échaussement, elles restent à l'écart, à 3 mètres du "groupe" de garçons auquel s'adresse le coach. Il ne parle pas très fort. 
+
+- Vous allez me donner votre prénom et votre poste. Non, vous allez faire trois groupes : attaquant, défenseur et latéraux ici.
+
+Les groupes se forment. Elles hésitent et se positionnent attaquantes. Quelques autres enfants disent eux aussi qu'ils n'ont pas de "postes" officiels, c'est leur première année.
+
+- Les 2010 mettez-vous à gauche et les 2011 à droite !
+
+Les filles hésitent et se "créent" un groupe à part au milieu. Pour rappel, elles sont de 2008 et 2009. Elles ne rentrent pas dans les cases énoncées. Je vais les voir en leur disant d'aller avec les 2010 du coup.
+
+- Nous allons former des équipes. X, tu seras défenseur dans cette équipe.
+
+Au bout de 5 minutes, toujours aucune fille. Ca me rappelle l'école.... 
+
+Une des filles est désignée.
+
+- Toi, tu vas en pointe.
+- Comment ? 
+- Tu vas en pointe dans cette équipe
+- (un garçon) mais vas là par là !
+- (hésitante, elle avance en tatonnant)
+
+(NDRL la pointe, c'est en attaque)
+
+Le match commence. 2 des filles seront en poste.
+
+Au début, je n'ai pas trop regarder. Puis je vois qu'une court beaucoup et l'autre beaucoup moins. Quelques temps après, dans les spectateurs, certains garçons disent :
+
+- c'est trop déséquilibré là. Pourquoi elles ne courent pas ? 
+
+Un troisième entraineur arrive
+- y a des filles ?.... c'est quoi cette tenue, elle porte un gilet ? Nan mais elle sort, elle ne joue pas comme ça.
+
+L'autre coach s'exécute.
+
+Je vais la voir
+- ça va ? ça n'avait pas l'air facile
+- j'arrête. Les garçons ne se passent la balle qu'entre eux. 
+- tu l'as demandé ?
+- plein de fois ! mais ils ne la passent jamais ! il m'a dit "je ne comprends pas ce que tu dis"
+
+La 2e joueuse nous rejoint peu après.
+- toi au moins tu as touché une fois la balle
+
+La dernière arrivée / retardataire 
+- Je m'en moque qu'ils ne la passent pas; J'irai la chercher encore et encore et je finirais par l'avoir !
+
+Un coach demande un moment :
+- Qui n'a pas encore joué ? 
+
+Quelques mains se lèvent, donc la fille qui a touché 0 fois la belle. 
+- pourquoi tu lèves la main, tu as déjà joué !
+- non je n'ai pas joué !
+Elles sont trop loin pour être entendues / vues de toute façon. Aucune ne sera appelée.
+
+
+100% de garçons sur le terrain. Du temps passe. Un garçon demande à l'entraineur :
+
+- pourquoi tu ne changes pas les joueurs ?
+- pourquoi tu demandes ? tu y as déjà été tout à l'heure
+- oui mais y en a d'autres qui n'y sont pas encore allés
+- ...
+
+Une cinquième fille arrive avec son papa :
+- je ne trouvais pas le stade ! où est ce qu'on peut s'inscrire ? 
+- quel âge a votre fille ? on ne donne pas les papiers d'inscription, il y a d'abord un entretien à 19h30 
+- d'accord, nous attendrons.
+
+WTF.
+
+5 minutes après.
+- Qui n'a pas joué ?
+Je dis aux filles qu'elles doivent se rendre visible auprès de l'entraineur si elles veulent rentrer. Une va le voir et revient heureuse.
+
+- Il m'a dit que tout le monde pourrait jouer !
+
+Pendant ce temps, elles me posent des questions
+- Est-ce que je serai obligée d'aller avec le groupe d'après ? Est ce que je ne peux pas rester dans celui de ma soeur ?
+- Est-ce qu'il y aura d'autres gens de 2008 ? ce sera que des garçons ? 
+- Est-ce qu'on ne peut pas jouer qu'entre filles ? (non désolée... ça ce n'est pas possible)
+
+Et puis... Elles rentrent ! Joie ! Elles sautillent et se gonflent à bloc.
+
+Une minute après (je n'exagère pas), un coach arrive 
+- Où sont les filles ? Venez venez, on va parler. Appelez moi aussi celles qui sont en train de jouer.
+- (le premier coach) non pas elle, je la laisse sur le terrain, elle vient d'entrer
+- Si, appelle là, viens !
+
+
+- Bon les filles, vous voulez jouer au foot ? 
+- (3 voix) Oui !
+- Vos parents savent que vous êtes là ? Vous comptez vous inscrire ? Si vous le pensez vraiment et êtes sérieuses dessus, on peut monter une équipe de filles. 
+- (moi) Elles ne sont pas assez là
+- T'inquiète j'ai déjà fait avec 5 personnes. On peut les mélanger avec d'autres âges aussi. Mais faudra porter des vrais tenus de sport (elles portent des leggings). Vous connaissez Adidas ou Nike par exemple ? 
+- (moi) Ca va aussi un short non ? c'est pas obligé d'avoir des vêtements de marque, si ?
+- ok si ça vous dit, on fait ça. Trouvez des copines pour vous rejoindre le mercredi à 18h. Et on montera une équipe. Là vous pourriez être assez. La séance est finir pour vous aujourd'hui, vous pouvez rentrer.
+(leurs visages se décomposent)
+- (moi) Elles peuvent retourner sur le terrain non ?
+- non, la différence de niveau est trop élevé (les 2 n'avaient même pas commencé).
+
+Une des filles est particulièrement deg. 
+- j'allais enfin commencer à jouer !
+- je dois rester attendre ici car mes parents viendront seulement à 19h30
+
+
+Je retourne voir le coach. 
+- t'as pas un ballon pour qu'elle puisse au moins jouer entre elles ?
+- non laisse tomber, c'est fini là, elles reviennent mercredi
+- tu ne te rends pas compte. Elles ont poireauter une heure et elles ont joué une minute. Y a pas de ballon en haut ?
+- tu peux demander à Y si tu veux
+
+Je reviens avec le ballon, y avait des étincelles dans leurs yeux.
+
+Elles revivent, sourires jusqu'aux oreilles à se battre pour la balle et à se tirer des buts. Un moment elle est dans le pied du coach, qui la garde machinalement. La fille va lui prendre tranquillement. Ce n'était plus du tout les mêmes personnes. Le jour et la nuit. 
+
+Un coach à un autre : 
+- tiens regarde, ça va être ton équipe
+- ah oui ?
+- hey elles ont du piquant quand même.
 
 
 
