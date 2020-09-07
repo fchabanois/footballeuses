@@ -312,7 +312,20 @@ Elles revivent, sourires jusqu'aux oreilles à se battre pour la balle et à se 
 Un coach à un autre : 
 - tiens regarde, ça va être ton équipe
 - ah oui ?
-- hey elles ont du piquant quand même.
+- hey elles se débrouillent pas mal !
+
+### Impacts
+
+De l'exclusion
+De l'invisibilisation
+Du fun 
+
+### Réflexions
+
+Sans une politique / volonté active et explicite d'inclure les jeunes filles, cela ne peut pas fonctionner (trop d'habitude sur un milieu full masculin). Qui sont autant de rappels sur "vous n'existez pas, on ne vous voit pas".
+
+Filles timorées + 1 fille téméraire + Coach non sensibilisés + garçons neutres + un garçon au discours limite = pas de jeu = Départs.
+
 
 
 
