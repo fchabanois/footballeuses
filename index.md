@@ -314,6 +314,50 @@ Un coach à un autre :
 - ah oui ?
 - hey elles se débrouillent pas mal !
 
+
+## Cours #1 bis des 9-10 ans > akka nouveau cours 8-14 ans
+
+Le soir même (lundi), au cas où l'info circulerait mal entre orgas, j'envoie un message au coordinateur du club et au président de l'asso pour leur dire qu'une équipe 100% filles est envisagée  en lui disant que ce serait pas mal de prévenir les personnes potentiellement intéressées du nouveau créneau, le mercredi à 18h. Pour augmenter le nombre de personnes ET éviter que certaines viennent "pour rien" au mauvais créneau.
+
+Le lendemain, pas de nouvelles et nous sommes quand même la veille du jour J. J'envoie un message au coordinateur à 21h46 pour demander s'il peut le faire ou non, car c'est lui qui avait pris le papier, même j'avais pris une photo en milieu de journée le jour du forum des assos.
+
+A 22h45, il me dit ok.
+8 minutes plus tard, il me dit qu'il n'a pas eu le temps et me demande si je peux le faire demain matin. 
+
+Je lui demande d'au moins m'envoyer les mails qu'il a peut etre déjà saisi, comme je n'ai pas toutes les infos. Et quand ok, de faire partir un mail le lendemain midi.
+
+0h46 je me résigne à envoyer un mail aux contacts que j'ai. J'ai du mal à lire et ai quelques notifications d'envoi ratés :/
+
+0h55 j'informe le coordinateur pour l'informer que j'ai géré les mails et s'il peut envoyer des textos à ceux qui n'ont laissé qu'un téléphone. Et surtout, surtout, de s'assurer qu'il y aura un coach à 18h le lendemain pour qu'elles ne viennent pas pour rien. Pas de réponse.
+
+Le jour J, à midi : j'envoie un texto à tous les numéros que j'avais pour préciser les 3 sections : 6-7 ans mixte, 8-14 ans le nouveau créneau et les séniores. J'ai quelques réponses et des personnes qui disent ne pouvoir y aller que semaine pro.
+
+20h : je vais à mon entrainement. Une jeune fille me hèle 
+
+- hey vous allez vous entrainer ?
+C'était une jeune fille de lundi.
+- oh ! tu y as été ? c'était bien ?
+- c'était gé-ni-al
+Quel contraste avec lundi ! Ca faisait plaisir à voir.
+- il y avait du monde ?
+- oui ! 12 personnes !
+
+## Cours #1 des séniores
+
+Jamais vu autant de monde déjà présent sur les gradins en train d'attendre.... au final 22 personnes, de 16 à 45 ans.
+
+Et il y a un comité d'accueil ! Avec le coordinateur, le président, le coach et même un autre entraineur. Ca n'a l'air de rien mais c'est super agréable. Infos covid, pack de footballeuses, séance supplémentaire (ah oui car le tarif femme est le même que celui des garçons / hommes, mais il n'y a qu'une séance au lieu de 2 - j'avais tenté de gratter l'année d'avant, qui a fait plouf et là j'avais fait une demande plus formelle).  Le coordinateur me redit qu'il pense monter une équipe de filles uniquement, comme elles sont 12 et qu'ils cherchent une entraineuse.
+
+Le terrain est coupé en 4 pour que nous puissions faire des exercices différents, les conseils étaient top. Super séance.
+
+A la fin, le coach mentionne le fait d'évocation de la possibilité de faire 2 groupes car trop nombreuses en l'état. Je proteste car cela nous fait retomber à une séance. Il ne comprend pas mon mécontentement : "Mais ça a toujours été comme ça pour les femmes". 
+
+
+
+
+
+
+
 ### Impacts
 
 De l'exclusion
