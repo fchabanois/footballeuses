@@ -342,6 +342,15 @@ Quel contraste avec lundi ! Ca faisait plaisir à voir.
 - il y avait du monde ?
 - oui ! 12 personnes !
 
+
+
+## Cours #3 des 8-14 ans
+
+Elles ont joué contre les garçons. 2-2.
+
+Toujours pas d'entraineur.se "officielle". C'est du dépannage.
+
+
 ## Cours #1 des séniores
 
 Jamais vu autant de monde déjà présent sur les gradins en train d'attendre.... au final 22 personnes, de 16 à 45 ans.
@@ -353,8 +362,58 @@ Le terrain est coupé en 4 pour que nous puissions faire des exercices différen
 A la fin, le coach mentionne le fait d'évocation de la possibilité de faire 2 groupes car trop nombreuses en l'état. Je proteste car cela nous fait retomber à une séance. Il ne comprend pas mon mécontentement : "Mais ça a toujours été comme ça pour les femmes". 
 
 
+## Cours #2 des séniores
+
+Entre les deux semaines :
+- échanges en off avec le club sur les dispos du terrain pour l'éventuel jour supplémentaire. Plusieurs options se profilent, on me dit pourquoi pas, à voir avec le coach à l'entrainement.
+- sondage auprès des joueuses pour voir leurs dispos sur les créneaux restants
+
+Jour J : annonce du coach qu'il va séparer en deux groupes. 
+Je ne comprends pas l'annonce qui est complètement dissonnante avec les échanges par mail.
+
+- "ça a toujours été une séance par semaine pour les filles !"
+- "y a 2 séances pour les garçons, il n'y a pas de raison que ce soit différent pour les filles alors qu'on paye pareil. Y a 50 ans, on n'avait pas le droit d'ouvrir de compte en banque, c'est pas une raison". 
+
+L'intendant s'adresse aux joueuses : on peut tester 2 jours par semaine pour l'instant et voir ce que ça donne. Le jour bonus sera le mardi.
+
+La séance commence, l'ambiance est un peu bizarre dans l'équipe.
+
+A la fin, le coach dit à quelques joueuses qu'il va découper l'équipe en deux et ne donnera plus le choix.
+
+Je dis qu'il faudrait qu'ils se parlent entre l'intendant, le président et lui et se mettent d'accord. Car si l'équipe est divisée, je vais essayer d'avoir un second créneau d'entrainement officiel.
+
+Une des joueuses m'apostrophe en disant que c'est le coach qui décide point barre. Donc je n'ai pas le droit de poser des questions ? Tu ne sais pas ce qui s'est passé entre temps, aucun ne dit la même chose. Je ne réussis pas à échanger avec elle, elle ne parle qu'au coach et part furieuse.
+
+Je ne rentrerai que 2h après la fin de l'entrainement
+- Le coach est saoulé des gens qui sont allés le voir pour dire que tel jour est possible mais pas l'autre. Il se trouve trop gentil. Il prétend que 5 personnes de l'équipe sont allés le voir pour lui demander pourquoi il me laissait lui parler comme ça.
+- On discute avec l'intendant qui me propose de prendre le lundi soir en cours supplémentaire mais qu'il faudrait alors que j'entraine.
+- Dehors, le coach est contre (mais je ne sais pas trop pourquoi, il y a peut etre des deals avec les jeunes du quartier, mais ça ne sera pas dit). Il me dit que c'est de ma faute, je n'aurais pas dû recruter de nouvelles joueuses. 
+
+Au final, je me dis que la vraie personne à convaincre ce n'était pas le président du club mais lui. Même s'il disait qu'il fallait voir avec l'intendant ou le président. Je dis que je vais tenter le lundi quand même. 
 
 
+## Cours #3 des séniores
+
+Je manque la première séance bonus. Il y a une quinzaine de joueuses.
+
+Le lendemain, en séance normale, ça s'est un peu détendu. L'automne est bien ancré, il pleut.... On est 22 environ, la séance est top.
+
+A la fin je demande au coach "ça allait là non ?"
+- oui là ça va, on peut continuer sur ce nombre à deux séances par semaine.
+
+
+## Cours #4 des séniores
+
+
+2e séance bonus : c'est un autre coach. On voit les bases que je n'avais en fait jamais vu. 
+On est une dizaine, avec 2 désistements de dernière minute. 
+
+
+## Cours #4 des séniores
+
+Coach : "on va faire 2 équipes. La semaine prochaine, on va faire encore un entrainement avec tout le monde, mais ensuite ce sera une séance par semaine. Autrement vous allez finir par vous blesser avec 2 séances d'affilées".
+
+3 petites blessures pendant cette séance.
 
 
 
