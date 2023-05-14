@@ -415,7 +415,22 @@ Coach : "on va faire 2 équipes. La semaine prochaine, on va faire encore un ent
 
 3 petites blessures pendant cette séance.
 
+## 2023 Avril
 
+Quand on arrive le terrain est occupé par des adultes et des jeunes. Ils finissent pas se déporter sur le coté un moment, mais très près du terrain. Sont très très bruyants, on ne s'entend pas, y compris les consignes. Une partie fait de la boxe. Un moment l'un dit à l'autre "ouais c bien, c'est pas un sport de fille ça !".
+
+Au bout d'un moment, je vais vers eux pour leur demander de faire moins de bruit, X me retient "non, t'inquiete on peut aussi aller plus loin". 
+
+Quand je leur dit, ils sont stupéfaits "ah bon on fait du bruit ?". On ne leur a jamais demandé de regarder autour d'eux.
+
+# 2023 
+
+En plein match contre les dégos, 3 adultes sur le coté, qui faisait du street work out quand on est arrivés, se mettent à nous regarder et faire des commentaires. Ils ont meme pris le soin de déplacer leur sono ultra fortes. Ils interpellent des joueuses pour leur parler. Demande les prénoms de l'autre équipe. 
+Au bout d'un moment, je leur demande s'ils veulent bien baisser la sono. 
+"QUOI ? tu crois que c'est à cause de notre musique que vous perdez ? Ca se voit que vous vous entrainez pas assez c'est tout !"
+Une autre joueuse leur demande d'arrêter leur commentaire car c'est pénible. 
+Pendant 10-15 autres minutes, ils vont continuer leurs commentaires de merde à chaque action, en pire. Et quelques pics échangés.
+Avant de finir par partir en faisant remarqué que "ca y est ils ont éteint la musique comme ça on ne pourra pas trouver d'autres excuses".
 
 ### Impacts
 
