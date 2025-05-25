@@ -450,6 +450,12 @@ Filles timorées + 1 fille téméraire + Coach non sensibilisés + garçons neut
 
 J'arrête le foot en club.
 
+## May 2025
+
+Sine qua non. 
+Terrain avec des 9 hommes adultes, qui viennent de le récupérer. 
+On occupe le mini bord de terrain en attendant que tout le monde arrive et de s'échauffer, en installant des cages provisoires. On va les voir en leur demandant si on peut l'utiliser. Ils nous disent qu'ils l'occupent jusqu'à la tombée de la nuit. On dit qu'on l'a réservé. Ma camarade propose de partager la moitié du temps. Ils nous disent que c'est plutot au gymnase plus loin, que ce n'est pas possible de réserver. Un autre finit par nous dire de repasser dans 30 minutes. 1h après, on se dit qu'on y retourne. Ma collègue a des scrupules, on continue de retarder le moment d'aller les voir. Ils nous demandent encore un peu de temps. On redonne 15/30 minutes. On y retourne et ils disent que c'est la dernière action. Le ton monte, ils finissent par partir sur le côté.  
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/fchabanois/footballeuses/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
