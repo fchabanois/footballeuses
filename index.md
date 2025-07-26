@@ -450,11 +450,56 @@ Filles timorées + 1 fille téméraire + Coach non sensibilisés + garçons neut
 
 J'arrête le foot en club.
 
+## Février 2025
+
+Five Auvervilliers
+- (au sujet du fait qu'on soit à Aubervilliers, et que le quartier ne soit pas fou) On n'a jamais été embêtées en venant en tout cas.
+- "C'est vrai que les mecs sont clean ici, ils sortent du terrain dès que c'est notre tour" (ce qui devrait être normal)
+- Ah oui, ça a pris des années, ce n'était pas comme ça au début. Ils ne voulaient pas partir, ils trainaient pour sortir. Ils ne voyaient pas ce qu'on faisait là. Maintenant c'est bon, dans ce five en tout cas, car il y a régulièrement des équipes féminines
+
+
+## Avril 2025
+
+- Mec qui entre dans le terrain : N'oubliez pas vos affaires en partant les filles !
+
+(sans aucune base, et c'est la seule fois où j'ai entendu une phrase bizarre  là-bas #mainsplaining)
+
+
 ## May 2025
 
-Sine qua non. 
+Sine qua non, 12e
 Terrain avec des 9 hommes adultes, qui viennent de le récupérer. 
 On occupe le mini bord de terrain en attendant que tout le monde arrive et de s'échauffer, en installant des cages provisoires. On va les voir en leur demandant si on peut l'utiliser. Ils nous disent qu'ils l'occupent jusqu'à la tombée de la nuit. On dit qu'on l'a réservé. Ma camarade propose de partager la moitié du temps. Ils nous disent que c'est plutot au gymnase plus loin, que ce n'est pas possible de réserver. Un autre finit par nous dire de repasser dans 30 minutes. 1h après, on se dit qu'on y retourne. Ma collègue a des scrupules, on continue de retarder le moment d'aller les voir. Ils nous demandent encore un peu de temps. On redonne 15/30 minutes. On y retourne et ils disent que c'est la dernière action. Le ton monte, ils finissent par partir sur le côté.  
+
+## Juillet 2025
+
+Sine qua non, 18e
+On a eu le terrain 45 min après (sur une réservation de 2h).
+Quand on entre : deux adultes contestent "vous devriez mettre une affiche, on n'est pas au courant" (c'est à la maison bleue, allez voir). "tu l'as reconnais pas ? mais si elle vient souvent. Nan mais c pas normal de faire ça même en été". 
+En dépit d'un "on est là tous les 15 jours". "oui mais eux ils viennent tous les jours, faut les comprendre !". 
+Les enfants continuent de jouer donc il faut il ya ller un par un. 
+10 min après, un adulte revient en disant que ce n'est pas normal; "vous devez partager le terrain". 
+Ca part en vrille.
+"ok bah on va jouer, on verra bien qui va gagner. Moi aussi je vais jouer. Venez les garçons".
+"'tain on va appeler la police" "mais non on va pas appeler la police"
+Quelques minutes après, un autre gars vient, on s'embrouille toujours, mais dit à l'autre de sortir avec les garçons.
+Une joueuse dit "ça me casse les couilles"; "hein quoi qu'est ce t'as dit, je suis là pour vous aider et tu me parles comme ça ?" (rebelote)
+La joueuse s'en va (on n'arrivera pas à la faire revenir). 
+Ils s'en vont.
+6 jeunes filles du quartier jouent avec nous. Pieds nus ou en tong.
+Une jeune femme demandant si les enfants qui l'accompagnent peuvent jouer (une fille et deux garçons). La fille oui, mais le petit frère reste à coté et tente de jouer. Le deuxième frère n'y tient plus et rentre aussi. La fille ne peut plus jouer, ils sont devant... Je leur explique. Le plus grand ne veut pas sortir. Je vais voir la soeur, qui l'appelle. Il refuse, il joue. Je retourne voir la soeur, pour lui proposer de garder ses affaires, et qu'elle peut emmener les autres au parc, car c'est dur pour eux de ne rien faire. Elle appelle la fille  "c pas grave on va partir, on reviendra". Elle va chercher la fille (pas le gars).  Elle ne veut pas. Elle appelle le garçon, qui refuse aussi. Elle prend la fille plus fermement, qui cède. Elle est super triste. L'autre garçon finit par suivre.
+20 min après un autre gars "médiateur de la ville" demandent si on a un papier et on doit tout réexpliquer.
+Un gars par la grille, à sa soeur "hey tu vas jouer ?" "trop bien, fais bien ce que je t'ai appris"
+10 min après, il repasse en nous demandant le nom de l'asso.
+Un gars par la grille essaie de (re)discuter de notre légitimité (on est en club ou pas etc), en plein match.
+Un deuxième pareil. 
+Des garçons demandent s'ils peuvent jouer de temps en temps.
+30 min après, il repasse en disant "c'est bon vous pouvez jouer" (merci...)
+On a pris deux goals gars, qui se font moquer par les autres quand ils la ratent. On leur dit qu'ici on soutient ou on sort. Ils veulent rentrer dans le terrain ou devenir goal. Faut vraiment beaucoup s'occuper d'eux.
+Les autres gars restent toujours sur le bord du milieu de terrain, j'ai beau leur dire de se mettre au fond, ils reviennent. 
+15 min avant la fin "c'est bientot notre tour". 
+C'est l'heure : les gars (adultes ET enfants) débarquent sur le terrain alors qu'on est encore dessus. Indépendamment qu'on n'a perdu quasiment une heure et qu'on a été interrompues tout le long.... 
+
 
 ## Welcome to GitHub Pages
 
