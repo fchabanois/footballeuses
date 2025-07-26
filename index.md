@@ -473,8 +473,22 @@ On occupe le mini bord de terrain en attendant que tout le monde arrive et de s'
 
 ## Juillet 2025
 
+Sine qua non, 12e
+- tu te rappelles de ce terrain ?
+- oui. On s'était embrouillés avec les gars qui voulaient pas le lacher.
+- c'est pas le pire ici, le pire c'est dans le 18e. Maintenant c'est mieux parce qu'ils me connaissent, en me voyant régulièrement, mais la dernière fois c'était une autre coach que j'ai formé. Les gars ont insulté les jeunes filles, taper sur les grilles, iels ont failli se battre. J'y suis retournée, je leur ai dit "il s'est passé quelque chose la dernière fois non ?" "non, on voit pas"
+- 
+Cette fois on joue a coté, on laisse toujours du temps mais on rentre tout ensemble. il le lachent rapidement.
+On aura 3 filles avec nous, assez fortes et jouant plutôt solo.
+Par contre tout le long, ils resteront juste à coté, avec de la musique forte et à faire des commentaires ou rire quand c'est loupé.
+20h : ils foncent sur le terrain et l'envahissent.
+
+
+
 Sine qua non, 18e
-On a eu le terrain 45 min après (sur une réservation de 2h).
+"Il est chouette ce terrain, il a la taille d'un five en un peu plus petit, et il est bien en plein air"
+On attend que tout le monde soit là pour entrer (15 min donc).
+On a eu le terrain 45 min après au final (sur une réservation de 2h).
 Quand on entre : deux adultes contestent "vous devriez mettre une affiche, on n'est pas au courant" (c'est à la maison bleue, allez voir). "tu l'as reconnais pas ? mais si elle vient souvent. Nan mais c pas normal de faire ça même en été". 
 En dépit d'un "on est là tous les 15 jours". "oui mais eux ils viennent tous les jours, faut les comprendre !". 
 Les enfants continuent de jouer donc il faut il ya ller un par un. 
@@ -486,7 +500,7 @@ Quelques minutes après, un autre gars vient, on s'embrouille toujours, mais dit
 Une joueuse dit "ça me casse les couilles"; "hein quoi qu'est ce t'as dit, je suis là pour vous aider et tu me parles comme ça ?" (rebelote)
 La joueuse s'en va (on n'arrivera pas à la faire revenir). 
 Ils s'en vont.
-6 jeunes filles du quartier jouent avec nous. Pieds nus ou en tong.
+6 jeunes filles du quartier jouent avec nous au fur et à mesure (on en avait qu'une au début). Pieds nus ou en tong. Se débrouillent bien mais aussi de grandes débutantes;
 Une jeune femme demandant si les enfants qui l'accompagnent peuvent jouer (une fille et deux garçons). La fille oui, mais le petit frère reste à coté et tente de jouer. Le deuxième frère n'y tient plus et rentre aussi. La fille ne peut plus jouer, ils sont devant... Je leur explique. Le plus grand ne veut pas sortir. Je vais voir la soeur, qui l'appelle. Il refuse, il joue. Je retourne voir la soeur, pour lui proposer de garder ses affaires, et qu'elle peut emmener les autres au parc, car c'est dur pour eux de ne rien faire. Elle appelle la fille  "c pas grave on va partir, on reviendra". Elle va chercher la fille (pas le gars).  Elle ne veut pas. Elle appelle le garçon, qui refuse aussi. Elle prend la fille plus fermement, qui cède. Elle est super triste. L'autre garçon finit par suivre.
 20 min après un autre gars "médiateur de la ville" demandent si on a un papier et on doit tout réexpliquer.
 Un gars par la grille, à sa soeur "hey tu vas jouer ?" "trop bien, fais bien ce que je t'ai appris"
@@ -500,6 +514,7 @@ Les autres gars restent toujours sur le bord du milieu de terrain, j'ai beau leu
 15 min avant la fin "c'est bientot notre tour". 
 C'est l'heure : les gars (adultes ET enfants) débarquent sur le terrain alors qu'on est encore dessus. Indépendamment qu'on n'a perdu quasiment une heure et qu'on a été interrompues tout le long.... 
 
+"Nous on a un club, et même le terrain qui est reservé par le club pour les femmes, les mecs ne voulaient pas nous le laisser". 
 
 ## Welcome to GitHub Pages
 
